@@ -1,3 +1,4 @@
+![](wallpaper.jpg)
 # 👋 I'm Jzurde(じゅーるで)
 - 👨🏻 **Name**: Jzurde(じゅーるで)
 - 🌏 **Location**: Tokyo, Japan
